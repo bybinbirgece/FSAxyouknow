@@ -1,0 +1,2 @@
+# FSAxyouknow
+GOK GİRSİN KIZIL ÇIKSIN
